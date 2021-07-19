@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Ssshhhyyyy.I'm a college student.
+- 👀 I specialize in traditional music of China. 
